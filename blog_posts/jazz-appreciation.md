@@ -1,0 +1,11 @@
+---
+title: Jazz Appreciation
+date: 2011-11-07 16:59:04
+tags:
+  - jazz
+---
+I love music.  When I’m looking for deep, brain stimulating, beautiful music I look to Jazz.  To me jazz isn’t a genre, it’s a medium.  With jazz, the music is all that matters.  It’s very hard to put into words what it is that jazz “does for me”, but I’m confident that it’s in the solos.  The band cuts back, and a single player is revealed; put upon the pedestal for the discerning listener to enjoy.  Much of current music hides the talented instrumentalists and puts an auto tuned vocal melody at the forefront, which is basically the opposite of what honest music should be.
+
+It took me several years to understand jazz, and to be able to enjoy it for what it’s supposed to be.  As a saxophone player in middle school and high school I was always reading how jazz is the holy grail of music, but I would buy a jazz CD (my first was Cannonball Adderley’s “Somethin’ Else”) and it would seem boring to me.  So I would come back to the CD a few weeks later and try to absorb it again with no luck.  I tried this casually for probably 5 or 6 years, but I always knew that I wasn’t catching all of what was there.  Eventually it clicked with me, and it was like a whole new world was opened up.  I wish I could put into words what the realization was, but I can’t.  It’s like all of the sudden my brain was able to function in an entirely different way.  It’s like jazz exists in a different dimension, and for the longest time I was only hearing the echoes that made it into this dimension.  Sub par metaphors aside, my point is that jazz connects with me in a way that no other music can, and it’s sad to see how far it has fallen from the public eye.  Once treated as a fine art, jazz has slowly but steadily been becoming just an old musical style.
+
+But, to whoever is reading this blog, there is hope!  If you have a mind for music, you can appreciate the sheer beauty of what jazz has to offer.  I highly recommend buying a copy of Kind of Blue.  Aside from being the best selling jazz album of all time, Kind of Blue is one of the more accessible albums I have come across.  One must be patient, and absorb what the artists are saying through their instruments.  Check out the examples I’ve included in this post as well.  Just try to close your eyes and listen to the music.
